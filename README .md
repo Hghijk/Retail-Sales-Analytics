@@ -96,7 +96,7 @@ Retail-Sales-Analytics/
 🔗 https://www.linkedin.com/in/manne2805hari/
 
 📧 Email  
-📮 manneharichandan2805@gmail.com
+📮 manneharichandana2805@gmail.com
 
 ---
 
